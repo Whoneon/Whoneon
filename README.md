@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Whoneon
+- 👋 Hi, I’m Antonio, aka @Whoneon
 - 👀 I’m interested in physics, chaos theory and food
 - 🌱 I’m currently attending University in Italy, getting ready to write my Bachelor's thesis
 - 💞️ I’m looking to collaborate on chaos theory and its application to society, such as economic and market prediction and epidemiology
